@@ -1,1 +1,1 @@
-# Krish_Agentic_Sol
+# Krish_Agentic_Sol & Avijit Training
